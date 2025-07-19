@@ -1,0 +1,1 @@
+# farmer-tech-adoption-model
